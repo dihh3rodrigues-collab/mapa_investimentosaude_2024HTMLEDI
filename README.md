@@ -1,2 +1,0 @@
-# mapa_investimentosaude_2024HTMLEDI
-MAPA INTERATIVO
